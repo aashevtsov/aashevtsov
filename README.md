@@ -5,6 +5,7 @@
 - ⚡ Fun fact: Fun fact: I love to draw and play guitar / drums
 
 <br />
+### Connect with me:
 
 ### Languages and Tools:
 
